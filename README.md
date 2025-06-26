@@ -1,0 +1,1 @@
+# Analisa-Sentimen-Publik-Terhadap-Respon-Pemecatan-Shin-Tae-Yong
